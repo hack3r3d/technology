@@ -1,0 +1,2 @@
+# technology
+Technolog Magazine
